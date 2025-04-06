@@ -45,4 +45,11 @@ Whether you’re brushing up for a quiz or exploring India from your couch — t
 
 ---
 
+![image](https://github.com/user-attachments/assets/c38f4be6-72e2-43ae-ba63-07c716c1c1e8)
+![image](https://github.com/user-attachments/assets/cb3625bb-6acf-4c7c-aded-2b4b0b1d77fb)
+![image](https://github.com/user-attachments/assets/ebda4209-1f7d-4763-8065-dd6e4756d4c3)
+
+
+
+
 
